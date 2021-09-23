@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Stas Okunev - software developer, technical & people manager and enterpreneur.
+- 👀 I’m interested in solving people and business problems, new techno trends and everything in our fancy IT world!
+- 💞️ I’m looking to collaborate in any cutting-edge technology products, typical IT outsourcing and solve business problems.
+- 📫 How to reach me: https://t.me/stas_okunev</ul>
